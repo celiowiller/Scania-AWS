@@ -1,0 +1,1 @@
+Repositorio de compartilhamento de conteúdo do Trenaimento AWS Foundation Scania/Impacta Maio-2026
